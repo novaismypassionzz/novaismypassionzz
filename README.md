@@ -1,6 +1,7 @@
 ## " My god... my.. UNIVERSE! " 
 <!--
-**novaismypassionzz/novaismypassionzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**novaismypassionzz/novaismypassionzz** is a ✨ _special_ ✨ reposi![7b3f207774ffeaa5801e4aa238691bfd](https://github.com/user-attachments/assets/5751c9cb-c007-4002-a0a9-12f93fb44126)
+tory because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 

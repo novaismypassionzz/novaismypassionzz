@@ -1,24 +1,24 @@
+## in a coma with ponytown, plays mostly on roblox -_-.
+![e0252cc64b018de5c52ebedb99a091ec](https://github.com/user-attachments/assets/30e41391-49b1-4d97-8078-cf498537cf80)
 
-  ![0228-pinkdrip](https://github.com/user-attachments/assets/35cc3915-5480-4163-9063-dc4f467e0ceb)
+-- *HE/THEY/THEM - TRANSMASC/POLYSEXUAL.* ((⠀⠀𝜗ৎ
 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Lora&pause=1000&color=F2A0FF&center=true&width=435&lines=%22+...Sua%3F+%22;%22+Sua%2C+this+isnt+a+joke..!+%22)](https://git.io/typing-svg)
 
-"my god.. my.. UNIVERSE! " 
+<img width="1024" height="218" alt="b2308ae88414ef3965d26e260a585074-removebg-preview" src="https://github.com/user-attachments/assets/355e248f-2f16-4526-8557-3844be69cebc" />
 
-  <img width="500" height="500" alt="48b7742e2500077b06feb45a711a4a7d-removebg-preview" src="https://github.com/user-attachments/assets/1f6f9d3b-0bf7-42bf-8c3b-c34b96e13249" />
-
-> ﹙NN ﹚*nova/rinnil*  ⋆₊˚
-- ?
-₊ __m__y ⸝ ⸝  __l__ove . . 𐂯
-╰  text
->  A . K . D . P . R . K . N MORE!! ‹𝟹
+<img width="500" height="500" alt="027d4fa70b65beb8f944f14bfbd57ddd-removebg-preview" src="https://github.com/user-attachments/assets/bdac14e1-781e-40e7-8c01-0699e02105ab" />
 
 
-*currently thinking if i should rmk my sp.*
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Lora&pause=1000&color=F2A0FF&center=true&width=435&lines=%22+My+god..+my+universe.+%22;%22+I++must+survive.+%22" alt="Typing SVG" /></a>
 
-" **i wished.. i was the one before you.** 
+--  **MIZI THEMED / SP IS WIP...**
 
-all info in my sp !!!
-plzz color my tree 
+![aa037a20cdd2f159f174646fe10293f2](https://github.com/user-attachments/assets/f6110c98-865c-456e-b6b1-37ed742851a8)
 
-<33![85e010f1e37a5ef9e7ca369fd089f28a](https://github.com/user-attachments/assets/910724c1-3d28-4341-9316-44d34bce2637)
 
+-- **ORIGINAL SP IS OUT, CHECK INFO ABOUT ME.*
+
+-- **1 out of 1,00,00 chance golden freddy posters will pop up on cam 2b!!/ref**
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Lora&pause=1000&color=F2A0FF&center=true&width=435&lines=%22+I+AM+A+WITCH.+%22;%22+DONT+YOU+GET+IT.+%22" alt="Typing SVG" /></a>![d95a4ff74b8c961f857c5e57e6f793bb](https://github.com/user-attachments/assets/91812ce0-de8a-4950-94d2-1fd1fd915087)

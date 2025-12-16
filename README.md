@@ -1,2 +1,1 @@
-## " My god... my.. UNIVERSE! " 
-![7a98413dbf3b22a08914cb78f4064a36](https://github.com/user-attachments/assets/9bf72b6b-bcf7-4645-8a69-01cd7eaff4de)
+## " My god... my.. UNIVERSE! " <img width="500" height="500" alt="48b7742e2500077b06feb45a711a4a7d-removebg-preview" src="https://github.com/user-attachments/assets/1f6f9d3b-0bf7-42bf-8c3b-c34b96e13249" />

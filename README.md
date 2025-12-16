@@ -21,4 +21,5 @@
 
 -- **1 out of 1,00,00 chance golden freddy posters will pop up on cam 2b!!/ref**
 
+--**links on my description.**
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Lora&pause=1000&color=F2A0FF&center=true&width=435&lines=%22+I+AM+A+WITCH.+%22;%22+DONT+YOU+GET+IT.+%22" alt="Typing SVG" /></a>![d95a4ff74b8c961f857c5e57e6f793bb](https://github.com/user-attachments/assets/91812ce0-de8a-4950-94d2-1fd1fd915087)
